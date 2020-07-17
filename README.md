@@ -1,0 +1,1 @@
+# analise_do_mercado_financeiro
